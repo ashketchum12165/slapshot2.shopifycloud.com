@@ -1,0 +1,1 @@
+# slapshot2.shopifycloud.com
